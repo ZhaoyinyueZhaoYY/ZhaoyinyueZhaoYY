@@ -7,6 +7,6 @@ An engineer and explorer. Let's improve everything.
 - 🔭 Working as Senior FE Engineer.
 - 💬 Ask me about anything, I'm happy to help!
 - 📫 Read more of contact me via Email or Wechat.
-- 📚 2022 Goals: Learn something new / Expand knowledge / Alive
+- 📚 2023 Goals: Learn something new / Expand knowledge / Alive
 
 Have a fun day!
